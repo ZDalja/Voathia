@@ -1,0 +1,2 @@
+I think I will right some ideas I have down here. Anything really. I really like Daimiad, theres a reason I made him first, hes so damn cool. I wish I was good enough to make a managa, I would certainly make Daimiad a reoccuring villain, always testing Thorn with every fight.
+I'm thinking about having Zarian reconstruct him, it wouldn't be crazy. Maybe a bit lazy, but no one calls the Mech Bosses lazy, so we will see a couple years down the line.
